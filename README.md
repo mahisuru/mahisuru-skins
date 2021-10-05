@@ -9,3 +9,8 @@
 ## [**Ameliorate (mahisuru edit)**](https://drive.google.com/file/d/1T0JUUlZqbXmpaGj2QaNe8wPdRQJJ12Dw/view?usp=sharing)
 ![](https://cdn.discordapp.com/attachments/648883152332259362/895017453158023168/screenshot689.jpg)
 
+## [**idke(old) mahisuru edit**](https://drive.google.com/file/d/1_XIqXAshscWHbcIxywnrK3QeB0MnA_3F/view?usp=sharing)
+![](https://cdn.discordapp.com/attachments/648883152332259362/895018748380082226/screenshot690.jpg)
+
+## [**howl (msu edit)**](https://drive.google.com/file/d/1l8ShmZfKpURmiLJH2-ewA4sfabj738vU/view?usp=sharing)
+![](https://cdn.discordapp.com/attachments/648883152332259362/895019625702653992/screenshot692.jpg)
