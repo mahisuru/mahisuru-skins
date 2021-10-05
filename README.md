@@ -1,4 +1,10 @@
-# mahisuru-skins
+# mahisuru's skins
+
+- **twitter:** @mahisuruowo
+- **osu**: [*https://osu.ppy.sh/users/11547643*](https://osu.ppy.sh/users/11547643)
+
+skins that I have used on and off over the years in cronological order.
+this is not fully filled out, it's just skins Ican remember using a lot.
 
 ## [**Aristia(msu edit)**](https://drive.google.com/file/d/1TZaki3HZNkY_agtfDFQY-0Gbxd6wmHU-/view?usp=sharing)
 ![](https://cdn.discordapp.com/attachments/648883152332259362/895012181928714240/screenshot683.jpg)
