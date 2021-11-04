@@ -6,6 +6,8 @@
 These are skins that I have used on and off over the years in cronological order.
 This is not fully filled out, it's just skins I can remember using a lot.
 
+Click the title of the skin to be taken to a download link.
+
 ## [**msu kamui**](https://drive.google.com/file/d/14RsUm_5J2wWies-LUK9x2QCBClB5vPFY/view?usp=sharing)
 ![](https://cdn.discordapp.com/attachments/648883152332259362/905802969100976168/screenshot716.jpg)
 (skin I currently use)
