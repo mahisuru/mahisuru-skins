@@ -4,7 +4,7 @@
 - **osu**: [*https://osu.ppy.sh/users/11547643*](https://osu.ppy.sh/users/11547643)
 
 These are skins that I have used on and off over the years in cronological order.
-This is not fully filled out, it's just skins I can remember using a lot.
+This is not fully filled out, it's just skins I can remember using a lot, or that I'm currently using.
 
 Click the title of the skin to be taken to a download link.
 
