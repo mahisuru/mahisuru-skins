@@ -8,20 +8,19 @@ This is not fully filled out, it's just skins I can remember using a lot, or tha
 
 Click the title of the skin to be taken to a download link.
 
+## [**Aristia(msu edit)**](https://drive.google.com/file/d/1nJCo0pxFkPT7pb0MDu9wr46D_wlCRjah/view?usp=sharing)
+![](https://cdn.discordapp.com/attachments/648883152332259362/895012181928714240/screenshot683.jpg)
+(skin I currently use)
+
 ## [**bird sprite msu edit**](https://drive.google.com/file/d/1BZh-OiGX7tZYgNgGbbsmf6vseluYDMl-/view?usp=sharing)
 ![](https://cdn.discordapp.com/attachments/648883152332259362/914958394081828944/screenshot735.png)
-(skin I currently use)
+
 
 ## [**_shield msu edit**](https://drive.google.com/file/d/1M3q5CV0PHMeZtAFcf-WIfngXYPuFMcKC/view?usp=sharing)
 ![](https://cdn.discordapp.com/attachments/648883152332259362/913759131209437184/screenshot730.png)
 
-
 ## [**msu kamui**](https://drive.google.com/file/d/14RsUm_5J2wWies-LUK9x2QCBClB5vPFY/view?usp=sharing)
 ![](https://cdn.discordapp.com/attachments/648883152332259362/905802969100976168/screenshot716.jpg)
-
-
-## [**Aristia(msu edit)**](https://drive.google.com/file/d/1TZaki3HZNkY_agtfDFQY-0Gbxd6wmHU-/view?usp=sharing)
-![](https://cdn.discordapp.com/attachments/648883152332259362/895012181928714240/screenshot683.jpg)
 
 ## [**xact msu**](https://drive.google.com/file/d/1P9P2cbjt8gShgQ8EU-_xx1tqQVb74hip/view?usp=sharing)
 ![](https://cdn.discordapp.com/attachments/648883152332259362/895010540563345498/screenshot679.jpg)
