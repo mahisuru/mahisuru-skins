@@ -13,7 +13,7 @@ Click the title of the skin to be taken to a download link.
 (skin I currently use)
 
 variations: 
-[**pink ver**](https://drive.google.com/file/d/1cqeFtuESvdm4MmSEOPXw86Pvnifbb5GE/view?usp=sharing)**
+[**pink version**](https://drive.google.com/file/d/1cqeFtuESvdm4MmSEOPXw86Pvnifbb5GE/view?usp=sharing)
 
 
 ## [**bird sprite msu edit**](https://drive.google.com/file/d/1BZh-OiGX7tZYgNgGbbsmf6vseluYDMl-/view?usp=sharing)
