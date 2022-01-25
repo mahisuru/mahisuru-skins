@@ -8,9 +8,13 @@ This is not fully filled out, it's just skins I can remember using a lot, or tha
 
 Click the title of the skin to be taken to a download link.
 
+## [**bonk (msu edit)**](https://drive.google.com/file/d/1z7D4p-6_fil-TGlxR0bk1I5r_cCWtF39/view?usp=sharing)
+![](https://cdn.discordapp.com/attachments/648883152332259362/935640543843721226/screenshot813.jpg)
+(skin I use mostly)
+
 ## [**Aristia(msu edit)**](https://drive.google.com/file/d/1nJCo0pxFkPT7pb0MDu9wr46D_wlCRjah/view?usp=sharing)
 ![](https://cdn.discordapp.com/attachments/648883152332259362/895012181928714240/screenshot683.jpg)
-(skin I currently use)
+(skin I semi use)
 
 variations:
 [**pink version**](https://drive.google.com/file/d/1cqeFtuESvdm4MmSEOPXw86Pvnifbb5GE/view?usp=sharing)
