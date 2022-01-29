@@ -12,7 +12,7 @@ Click the title of the skin to be taken to a download link.
 ![](https://cdn.discordapp.com/attachments/648883152332259362/935640543843721226/screenshot813.jpg)
 (skin I use mostly)
 
-## [**Aristia(msu edit)**](https://drive.google.com/file/d/1nJCo0pxFkPT7pb0MDu9wr46D_wlCRjah/view?usp=sharing)
+## [**Aristia(msu edit)**](https://drive.google.com/file/d/1CWVmbUxnjKOeoBA1jLoY4Vqq1-cJEZaG/view?usp=sharing)
 ![](https://cdn.discordapp.com/attachments/648883152332259362/895012181928714240/screenshot683.jpg)
 (skin I semi use)
 
