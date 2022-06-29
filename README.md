@@ -8,9 +8,13 @@ This is not fully filled out, it's just skins I can remember using a lot, or tha
 
 Click the title of the skin to be taken to a download link.
 
+## [**mahisuru kingling rhulk (edit)**](https://drive.google.com/file/d/1_gN0wq5WkWjHAlGC4xRVQudzwrvrxpY2/view?usp=sharing)
+![](https://cdn.discordapp.com/attachments/648883152332259362/991775750074142730/screenshot1013.jpg)
+(skin i currently use)
+
 ## [**contaminate (msu edit)**](https://drive.google.com/file/d/13We7-z4b5vcoRCVpcM5zQ4eSpoOKYrm-/view?usp=sharing)
 ![](https://cdn.discordapp.com/attachments/648883152332259362/977236405799501834/screenshot985.jpg)
-(skin i currently use)
+
 
 ## [**Aristia(msu edit)**](https://drive.google.com/file/d/1CWVmbUxnjKOeoBA1jLoY4Vqq1-cJEZaG/view?usp=sharing)
 ![](https://cdn.discordapp.com/attachments/648883152332259362/895012181928714240/screenshot683.jpg)
